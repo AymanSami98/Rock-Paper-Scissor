@@ -1,0 +1,1 @@
+For make this project i watched a lot of youtube tutorials and I've tried to build a lot of them. But the one that was fun and taught me a lot was this one so i decided to make this one.
